@@ -1,3 +1,1 @@
-# alexkilic.github.io
-
-Peanus
+# ExoMonkey.github.io
